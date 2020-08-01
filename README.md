@@ -15,3 +15,4 @@ Feel free to contact me!
 Selled Plugins
 ---------------
 Premium Special Round - Hexxes.eu [Proksi]
+Premium Special Round vol.2 - Hexxes.eu [Proksi]
